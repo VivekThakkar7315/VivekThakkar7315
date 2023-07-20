@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VivekThakkar7315
-- 👀 I’m interested in Travel 
+- 👀 I’m interested in Coding
 - 🌱 I’m currently learning M.C.A
 - 💞️ I’m looking to collaborate on Project 
 - 📫 How to reach me Aim 
